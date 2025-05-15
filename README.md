@@ -1,3 +1,3 @@
 # helloword
 
-Vai Corinthians 
+Vai Corinthians, Palmeiras não tem mundial. 
